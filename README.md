@@ -8,7 +8,7 @@
 
 - 📫  - How to reach me:
 
---  **E-Mail**: [davel@cpanel.net](mailto:davel@cpanel.net) or [david.w.lanning@webpros.com](mailto:david.lanning@webpros.com)
+--  **E-Mail**: [davel@cpanel.net](mailto:davel@cpanel.net) or [david.lanning@webpros.com](mailto:david.lanning@webpros.com)
 
 --  **LinkedIn**: https://www.linkedin.com/in/dave-lanning-3636a612/
 
